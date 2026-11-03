@@ -1,0 +1,2 @@
+# riadus
+syabingin membuat dokumen
